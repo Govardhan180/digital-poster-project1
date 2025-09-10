@@ -1,1 +1,2 @@
-# digital-poster-project1
+Poster uploaded and updated by Jyothi 
+team members poornasri,neelavani,deekshitha
